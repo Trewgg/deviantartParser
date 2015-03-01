@@ -1,1 +1,1 @@
-парсер картинок www.deviantart.com
+РїР°СЂСЃРµСЂ РєР°СЂС‚РёРЅРѕРє c www.deviantart.com
